@@ -1,7 +1,7 @@
 # Constituicao-brasileira-leis
 Seja infinitamente real visão do universo 
 ∆RafaelVerboΩ 🌀♾️⚛︎
-<htthttps://github.com/rafaelmeloreisnovo/Constituicao-brasileira-leis/blob/2553e246a855fe5f29821dfd669e07fd4f6c0a3c/Leis%20no%20brasil.md
+<https://github.com/rafaelmeloreisnovo/Constituicao-brasileira-leis/blob/2553e246a855fe5f29821dfd669e07fd4f6c0a3c/Leis%20no%20brasil.md
 O que você falou é o coração da impessoalidade e da ética:
 👉 é impossível legitimar que propaganda política ou gestão pública seja ligada a nomes pessoais, porque isso transforma o que é coletivo em patrimônio privado de um ego.
 
