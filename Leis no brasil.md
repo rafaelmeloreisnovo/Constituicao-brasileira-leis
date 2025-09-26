@@ -208,3 +208,142 @@ Pede também ação sistêmica (CNJ + revisão coletiva).
 
 👉 Quer que eu já prepare esse modelo em formato de petição (.docx ou .pdf) para você usar direto como rascunho oficial?
 
+👣⚒️🦉📐💭 Rafael — entendi: você quer que eu amplie o modelo para a situação de pessoas que ainda estão presas em processos de drogas iguais ao seu (mesmas nulidades, mesmas frases “Ctrl C + V”).
+
+Isso é mais grave porque:
+
+a nulidade não é só teórica — há gente presa preventivamente ou já condenada com base nos mesmos despachos genéricos;
+
+a responsabilização do Estado não é apenas indenizatória, mas envolve liberdade imediata (HC coletivo, revisão criminal, ação constitucional).
+
+
+
+---
+
+📜 MODELO CONTUNDENTE – PRESOS EM SITUAÇÃO ANÁLOGA
+
+EXIBIÇÃO DE DECISÕES PADRONIZADAS E PEDIDO DE HABEAS CORPUS COLETIVO
+
+
+---
+
+I – INTRODUÇÃO
+
+A Defesa, com fundamento no art. 5º, LXVIII, da Constituição Federal, vem demonstrar a situação sistêmica de nulidade absoluta em processos de drogas, onde dezenas (ou centenas) de pessoas permanecem presas ilegalmente, submetidas a decisões padronizadas, sem fundamentação individualizada, em afronta direta à Constituição e aos Tratados de Direitos Humanos.
+
+
+---
+
+II – CONTEXTO SISTÊMICO
+
+1. Presos preventivos: mantidos em cárcere apenas com base em fórmulas genéricas como “garantia da ordem pública” ou “gravidade abstrata do delito”.
+
+
+2. Réus condenados: sentenças idênticas, baseadas exclusivamente em laudos com vícios de cadeia de custódia e testemunhos policiais únicos.
+
+
+3. Fórmulas Ctrl C + V: as mesmas 30 expressões já listadas, copiadas em bloco, sem exame da situação individual de cada acusado.
+
+
+
+
+---
+
+III – FUNDAMENTAÇÃO JURÍDICA
+
+1. Constituição Federal
+
+Art. 93, IX: decisões devem ser fundamentadas.
+
+Art. 5º, LXVIII: cabível habeas corpus quando alguém sofrer coação ilegal.
+
+Art. 5º, LXXV: o Estado indenizará o condenado por erro judiciário.
+
+
+
+2. Tratados Internacionais
+
+Pacto de San José da Costa Rica, art. 7º: direito à liberdade pessoal.
+
+Pacto Internacional de Direitos Civis e Políticos, art. 9º: ninguém pode ser privado de liberdade sem devido processo.
+
+
+
+3. Jurisprudência
+
+STF, HC 143.641/SP (Habeas Corpus coletivo para mães presas preventivamente).
+
+STJ, HC 598.051/SC (nulidade por ausência de cadeia de custódia).
+
+
+
+
+
+---
+
+IV – PEDIDO DE HABEAS CORPUS COLETIVO
+
+Diante da comprovação de que diversos réus permanecem presos com base em decisões genéricas e padronizadas, requer-se:
+
+1. Reconhecimento da nulidade absoluta de decisões proferidas sem fundamentação individualizada;
+
+
+2. Concessão imediata de liberdade a todos os presos que estejam custodiados apenas em razão dessas decisões padronizadas;
+
+
+3. Subsidiariamente, substituição da prisão preventiva por medidas cautelares diversas (art. 319 CPP).
+
+
+
+
+---
+
+V – RESPONSABILIDADE DO ESTADO
+
+Além da liberdade, a permanência indevida de pessoas no cárcere configura:
+
+Erro judiciário sistêmico, atraindo a responsabilidade objetiva do Estado (art. 37, §6º CF).
+
+Indenização massiva, em patamar não inferior a R$ 500.000,00 por pessoa, podendo alcançar cifras 100× maiores em casos emblemáticos (R$ 50.000.000+), pela perda de anos de vida em cárcere injusto.
+
+
+
+---
+
+VI – PEDIDOS FINAIS
+
+1. Concessão de Habeas Corpus coletivo em favor de todos os presos mantidos sob decisões padronizadas.
+
+
+2. Reconhecimento da nulidade sistêmica e envio ao CNJ para correção estrutural.
+
+
+3. Fixação de parâmetros para indenização coletiva e individual dos atingidos.
+
+
+
+Termos em que,
+Pede deferimento.
+
+(Local, data)
+
+(Assinatura / Advogado / OAB)
+
+
+---
+
+📌 Resumo:
+Esse modelo serve para atacar não só teu caso, mas também os de pessoas que continuam presas sob as mesmas nulidades. Ele pede:
+
+HC coletivo (liberdade imediata),
+
+Nulidade sistêmica (para todos os processos com “Ctrl C + V”),
+
+Indenização massiva (até valores bilionários somados).
+
+
+
+---
+
+👉 Quer que eu faça uma versão pronta em PDF/docx, já com os 30 trechos padronizados anexados, para ser usada como manifesto público ou petição coletiva?
+
